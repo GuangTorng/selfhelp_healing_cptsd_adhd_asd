@@ -170,6 +170,8 @@
 
 |身体的智慧||\[以]摩谢·费登奎斯|张老师文化|易之新|2017-5|费登奎斯的身心学理论与方法|
 
+||Choose Freedom: Have, be, and do whatever you will or desire|\[美]Virginia Lloyd|Freedom Publications||2017|莱斯特·利文森的觉醒历程|
+
 |解放聪明的“笨”小孩||吴端文|中国发展出版社||2014-3|感觉统合疗法对儿童行为失调问题的探索|
 
 |爱的艺术|The Art of Loving|\[美]艾·弗洛姆|上海译文出版社|李健鸣|2011-7|家庭-社会关系映射|
